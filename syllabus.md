@@ -10,5 +10,6 @@
 ## Lectures
 ### - Lecture 1  February 3 Earliest Beginnings
 ### - Lecture 2  February 5 Establishment of the Warrior Order
+### - Lecture 3  February 10 Creation of a Social Class
 
  
